@@ -12,4 +12,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[spicystrips@protonmail.com](mailto:spicystrips@protonmail.com)
+[spicystrips<you know whats here>protonmail dot com]
